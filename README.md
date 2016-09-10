@@ -1,0 +1,2 @@
+# adie
+susah gampang
